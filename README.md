@@ -1,1 +1,1 @@
-Check the live version at: sunnyspot.epizy.com
+Check the live version at: http://www.sunnyspot.epizy.com
